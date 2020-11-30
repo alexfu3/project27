@@ -1,0 +1,13 @@
+# Recipe
+- Cut the bacon strip in half and cook the bacon until medium crispy (to taste) on medium heat in a covered skillet
+- Make the egg over easy with a runny yolk as follows:
+- Put a separate 6 to inch skillet on med low and melt coconut oil or bacon fat if desired
+- Break the egg carefully into the skillet so you don't break the yolk
+- Add a Tablespoon of water into the skillet and cover
+- Cook until egg white is just solid, yolk should be runny
+- Cut the croissant and lightly toast it.
+- Assemble the croissant by laying each half open on a plate
+- Layer the bacon two half strips on the croissant bottom
+- Lay the cooked egg carefully onto the bacon
+- Top with the croissant topper
+- Serve with a knife and fork or eat by hand over a plate to catch the drips
